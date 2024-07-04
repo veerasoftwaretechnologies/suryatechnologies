@@ -1,2 +1,2 @@
-hi guys how arer you
+hi guys how are  you
 
